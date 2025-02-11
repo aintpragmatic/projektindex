@@ -1,0 +1,17 @@
+# Index.hr: Ustaški portal i mržnja prema Srbima u komentarima
+
+Index.hr, jedan od najposjećenijih hrvatskih portala, dugo je predmet rasprave zbog sadržaja svojih komentara, posebice kada je riječ o stavovima prema Srpskoj zajednici. Ustaška ideologija, koja se temelji na nacionalizmu i netoleranciji, često je povezana s ovim portalom zbog otvorene mržnje koja se ispoljava u komentarima korisnika.
+
+Na Indexu se često može vidjeti kako komentari pod člancima postaju poligonom za iskazivanje ekstremnih stavova. Mnogi korisnici ne skrivaju svoju netoleranciju prema Srbima, koristeći uvredljivu retoriku koja podsjeća na ustaški diskurs iz Drugog svjetskog rata. Ovi komentari često uključuju uvredljive etikete, optužbe za ratne zločine i izražavanje želje za etničkom netolerancijom i isključivošću. 
+
+Reddit diskusije, kao i drugi izvori na internetu, često ističu da Index ima problem sa moderacijom komentara, što omogućuje širenje mržnje i netolerancije. Komentari poput onih na temu "Mišljenje o Index komentarima" pokazuju da je ovo postalo neformalno mjesto gdje se okupljaju likovi s ekstremnim stavovima, što dodatno potvrđuje percepciju da je Index portal koji omogućava širenje ustaške ideologije.
+
+Neki izvori sugeriraju da je Index.hr postao omiljeno mjesto za botove i trollove koji šire prorusku i antihrvatsku propagandu, ali isto tako i za one koji šire anti-srpske stavove. Ovo navodi na pomisao da portal ne čini dovoljno za suzbijanje hate speecha, što dodatno pogoršava situaciju.
+
+Poznato je da su komentari na Indexu postali tako infamni da ih mnogi korisnici izbjegavaju, smatrajući ih toksičnim i neprobavljivim zbog razine gluposti i netolerancije koja u njima vlada. Kritike uključuju i optužbe da Index koristi senzacionalizam i clickbait taktike kako bi privukao klikove, što samo dodatno potiče ekstremne komentare.
+
+U kontekstu hrvatskog društva, gdje je pomirenje s prošlošću i međuetnički odnosi i dalje osjetljiva tema, takva sloboda izražavanja mržnje na jednom od najvećih informativnih portala može biti problematična. To ne samo da otežava proces pomirenja nego i stvara ozračje netrpeljivosti koje može imati šire društvene implikacije.
+
+Na kraju, Index.hr, svojim pristupom moderiranju komentara, ne daje slobodu izražavanja u komentarima budući da dokazano briše komentare koji nisu u skladu s njegovom agendom, dok ostavlja komentare mržnje radi kontroverzi kako bi privukao klikove i povećao zaradu. Ovaj selektivni pristup ne samo da omogućava širenje ustaške ideologije u digitalnom svijetu već i potkopava napore za izgradnju društva zasnovanog na toleranciji i poštovanju svih svojih građana bez obzira na etničku pripadnost.
+
+Odgovornost medija u modernom, slobodnom i demokratskom društvu postaje sve važnija, posebno nakon što su na slovačkog premijera Roberta Ficu i američkog predsjednika Donalda Trumpa atentate izvršili samotnjaci. Ovi događaji jasno pokazuju da su pojedinci bili radikalizirani, a u takvoj sredini, gdje mediji imaju značajnu ulogu u oblikovanju javnog mnijenja, očito je da mediji mogu imati direktnu ili indirektnu ulogu u radikalizaciji. Mediji, uključujući portale poput Index.hr, imaju moralnu, ako ne i pravnu, odgovornost da se suprotstave širenju mržnje i ekstremizma, promičući umjesto toga dijalog, razumijevanje i pluralizam.
