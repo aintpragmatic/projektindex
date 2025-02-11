@@ -4,7 +4,7 @@ Index.hr, jedan od najposjećenijih hrvatskih portala, dugo je predmet rasprave 
 
 Na Indexu se često može vidjeti kako komentari pod člancima postaju poligonom za iskazivanje ekstremnih stavova. Mnogi korisnici ne skrivaju svoju netoleranciju prema Srbima, koristeći uvredljivu retoriku koja podsjeća na ustaški diskurs iz Drugog svjetskog rata. Ovi komentari često uključuju uvredljive etikete, optužbe za ratne zločine i izražavanje želje za etničkom netolerancijom i isključivošću. 
 
-Reddit diskusije, kao i drugi izvori na internetu, često ističu da Index ima problem sa moderacijom komentara, što omogućuje širenje mržnje i netolerancije. Komentari poput onih na temu "Mišljenje o Index komentarima" pokazuju da je ovo postalo neformalno mjesto gdje se okupljaju likovi s ekstremnim stavovima, što dodatno potvrđuje percepciju da je Index portal koji omogućava širenje ustaške ideologije.
+Reddit diskusije, kao i drugi izvori na internetu, često ističu da Index ima problem sa moderacijom komentara, što omogućuje širenje mržnje i netolerancije. Komentari poput onih na temu "Mišljenje o Index komentarima" pokazuju da je ovo postalo neformalno mjesto gdje se okupljaju ljudi s ekstremnim stavovima, što dodatno potvrđuje percepciju da je Index portal koji omogućava širenje ustaške ideologije.
 
 Neki izvori sugeriraju da je Index.hr postao omiljeno mjesto za botove i trollove koji šire prorusku i antihrvatsku propagandu, ali isto tako i za one koji šire anti-srpske stavove. Ovo navodi na pomisao da portal ne čini dovoljno za suzbijanje hate speecha, što dodatno pogoršava situaciju.
 
